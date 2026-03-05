@@ -1,9 +1,10 @@
-> The last true rebelion is death to the world
+> God from God,Light from Light, True God from True God
 > 
-> To be crucified to the world and the world to us
+> Begotten, not made. Consubstatial with the Father.
 > 
+> For us men and for our salvation
 > 
- ~ @Monk Justin martyer
+ ~ @Nicene creed
 
 
 
