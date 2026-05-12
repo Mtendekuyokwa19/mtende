@@ -1,10 +1,7 @@
-> God from God,Light from Light, True God from True God
+> The quest for "artificial flight" succeeded when the Wright brothers stopped imitating birds and learned about aerodynamics 
 > 
-> Begotten, not made. Consubstatial with the Father.
 > 
-> For us men and for our salvation
-> 
- ~ @Nicene creed
+ ~ Stuart Russell
 
 
 
